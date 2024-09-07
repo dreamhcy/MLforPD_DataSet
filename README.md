@@ -1,1 +1,1 @@
-Due to commercial constraints, the full dataset is available on request for those researchers who meet the access criteria.
+Due to commercial constraints, researchers who meet the access criteria can request the full dataset from luhuimin@ccut.edu.cn.
